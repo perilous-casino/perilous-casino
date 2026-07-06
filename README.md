@@ -4,3 +4,4 @@
 </p>
 
   -----------*---*◄►◄►◄►◄►  CMOOON YALL JUST LOOK AT HIM.....!!! ◄►◄►◄►◄►
+ fuhing thing WASTE OF FREAKING TIME CUZ OF THIS! THE IMAGE ISNT EVEN TRANSPARENT UGHHHH!  
